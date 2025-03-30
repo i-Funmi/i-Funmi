@@ -13,7 +13,7 @@ I'm open to opportunities that might help contribute to the betterment of busine
 
 Reach out to me:
 
-- ✉️ isholaolufunmiabiodun@gmail.com
+- ✉️ olufunmiishola@gmail.com
 - 📞 +2348105375527
 
 May I meet you too?
